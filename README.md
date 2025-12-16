@@ -135,8 +135,9 @@ where one door closes and another opens. Manufacturing of crises relies on free 
 in the name of freedom and then denounced as problems. Crises that have already been resolved through sufficient protocols 
 are then placed into zones of human debate, zones that are sometimes driven by self-serving interests and almost always 
 staffed by propagandists who dedicated much of their professional lives to the art of persuasion. This is what manufactured 
-crises are, not the crises that occurred or is occurring, but the ways of depicting those crises for motives indisputably 
-slanted. Crises weaken security protocols to encourage security failures. Security failures are a kind of crises in and 
-of themselves. And it is important to note that problems have combinative power to them. Combining problems is not so much 
-an operation of addition but an operation of mutation, sometimes exponential from what those problems were originally worth. 
+crises are, not the crises that occurred or is occurring, but the ways of acting on those crises (depiction, reaction) for 
+motives indisputably slanted. Crises weaken security protocols to encourage security failures. Security failures are a kind 
+of crises in and of themselves. And it is important to note that problems have combinative power to them. Combining problems 
+is not so much an operation of addition but an operation of mutation, sometimes exponential from what those problems were 
+originally worth. 
 
