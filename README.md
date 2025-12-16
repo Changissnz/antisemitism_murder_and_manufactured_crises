@@ -75,7 +75,7 @@ Related to the theme of financial problems is that of populist and mob organizat
 looked down on by elite classes across the world, not just in the United States. To be a populist is something like being 
 a common person that has a worldview that their views are for the common people, yet a political representative with a 
 name and institutional backing to their self cannot possibly be entirely common, so they cannot fully represent populist interests. 
-In certain circles of elitism, calling someone a populist is similar to calling someone a n*****. These principles explain 
+In certain circles of elitism, calling someone a populist is similar to calling them a n*****. These principles explain 
 why the American Democratic Party, a party with a historically elitist edge that has attempted to reform its image to appeal 
 to the populace, has had many embarrassing failures since the ascent of DJT. And the American Democratic Party continues to 
 spread its power too thin to tackle certain issues that the Republican Party never promised to its constituents that it would 
