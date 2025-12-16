@@ -93,7 +93,7 @@ through singular collective bonding, populism is filled with inconsistencies tha
 as part of liberal "not my problem, pal" profiteering. Yet, populism has an appeal to it. The appeal is de-alienation of 
 common persons, re-unification of lands fragmented by territorial lines, perhaps even reformation, although reclaimation is 
 the more likely path chosen simply due to material gains from kleptocratic campaigning. But in most cases, there is little 
-chance for new and greater beginnings when entire branches are hacked off instead of alternatively channeling efforts into 
+chance for new and greater beginnings when entire branches are hacked off instead of alternatively channeled into 
 other concentrations. Populist and mob organizations, alike, need representatives for the face of the power they exert behind 
 that face. In theory of machines, agency shifts, agents sometimes change roles and sometimes get deposed, and these theoretical 
 changes are valid because real-world examples can trace their principles back to these machine theoretics. Human identity, to a 
