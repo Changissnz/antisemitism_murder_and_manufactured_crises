@@ -1,4 +1,4 @@
-# antisemitism_murder_and_manufactured_crises
+# Antisemitism, Murder, and Manufactured Crises
 ## written by Richard Pham 
 An opinion piece on antisemitism, murder, and manufactured crises. 
 ----------------------------------------------------------------------
