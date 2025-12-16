@@ -4,7 +4,7 @@ An opinion piece on antisemitism, murder, and manufactured crises.
 ----------------------------------------------------------------------
 
 The Sunday, 12/14/2025, mass shooting on Australia's Bondi Beach killed 15 Jewish people, and also managed to 
-become a front-page story for today, the 15th. I want to briefly talk about some themes related to this anti-semitic 
+become a front-page story for today, the 15th. I want to briefly talk about some themes related to this antisemitic 
 event, such as murder. Rob Reiner, of Jewish descent, and his wife were also murdered on the 14th. These are 
 newsworthy events, and certainly spell of underlying problems plaguing Western societies, even those in the 
 New World (the United States, Australia, etc) that do not carry the same scourge of colonial, feudalist, and 
